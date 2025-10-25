@@ -1,1 +1,1 @@
-# komit
+e,e,e,e,e,
